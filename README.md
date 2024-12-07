@@ -1,0 +1,1 @@
+# oct24-t1w8-eurocupmanager
